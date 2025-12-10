@@ -1,0 +1,2 @@
+# SIGED.certificado-preparatoria-autenticacion-GARE800719HMCRBD09
+GARE800719HMCRBD09
